@@ -1,4 +1,4 @@
-# 
+# Atualizado AI Quiz Generator temas. Com tomada de decisão automatizada e IA em nuvem — otimizado para máximo desempenho.
 
 
 
